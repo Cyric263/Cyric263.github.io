@@ -10,7 +10,9 @@ My github page, https://cyric263.github.io/, is divided into 3 sections:
 
 3. polycarbonsuit: notes on topics like: A Course In Miracles, Aliens, and Readings. (this section needs to be revised).
 
+4.  The actual website itself is a collection of Free-Content Spiritual Videos... topics are diverse:   https://cyric263.github.io/
 
+Enjoy!
 
 
 
